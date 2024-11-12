@@ -2,7 +2,7 @@
 
 With heartfelt appreciation, we remember Terry Davis for his years of devoted labor on TempleOS. This operating system, crafted with love and a deep desire to glorify God, stands as a testament to his faith and creativity. While most operating systems are mere tools designed to serve human needs, TempleOS is a digital sanctuary, created to delight God and honor His Holy Name. Terry, your work will not be forgotten. Your legacy endures, not just as a technical achievement, but as a profound expression of devotion and ingenuity.
 
-Through our Lord, Jesus Christ, your Son, who lives and reigns with You in the unity of the Holy Spirit, God forever and ever. Amen.
+Through our Lord, Jesus Christ, Your Son, who lives and reigns with You in the unity of the Holy Spirit, God forever and ever. Amen.
 
 - 2 Esdras 2:34-36
 - Psalm 34:18
